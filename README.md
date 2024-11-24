@@ -6,5 +6,4 @@ Lets use this space for brainstorming for ideas
 - How cloase are we to achieving it?
 - Whats the Timeline?
 ndndnfbfjfbfjfbfbfbf
-bdnfnf f
-djejdbennenen
+bdnfnf 

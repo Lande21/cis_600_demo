@@ -7,3 +7,4 @@ Lets use this space for brainstorming for ideas
 - whats the time line?
 - what do we need to start?
 - can we commit an hour for ourselves??
+- What is distracting us? cut it out!

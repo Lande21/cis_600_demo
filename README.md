@@ -4,4 +4,3 @@ example
 Lets use this space for brainstorming for ideas
 - Whats the priority?
 - How cloase are we to achieving it?
-- Whats the Timeline? 
